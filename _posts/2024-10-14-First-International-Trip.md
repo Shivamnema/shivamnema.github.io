@@ -1,20 +1,26 @@
 ---
 layout: post
 title: First International Trip
-subtitle: When Life takes unexpected turn of events 
-tags: [Travel, personal]
+subtitle: A Budget European Vacation
+tags: [Travel, personal, Europe, Switzerland, Paris, Italy]
 comments: false
 ---
 
 ## Genesis of Wildest Travel Idea
 
-While talking over a call with one of my closest friend, we somehow landed up discussing Europe Vacation. As we are fond of travelling together we thought of conquering Europe through our travel photos, unrealistic thoughts and last but most important getting our **First Visa Stamp**. As we are Indians, Travelling to one of those first world countries is among the wildest idea one of generated and even thought of discussing with family. The problem is Indian families most often associate foreign trip to be a work trip and a leisure trip is often looked ignored or neglected due to multiple reasons. Among one is expense which really concern me personally me as well. Despite the fact that it is gonna cost us  fortune but we still decided to dived into the sea of "European Vacation". Amidst all of this someone my friend dropped out of the plan as his fam didn't incliend with the this adventure. So, Now its just Ankita and I decided to do this crazy thing together. 
+During a casual phone call with one of my closest friends, the topic of a European trip came up. Being avid travelers, we thought, why not conquer Europe together? Our primary goals were simple: take tons of travel photos, create some crazy stories, and most importantly, get our first visa stamp.
+
+For many Indians, traveling to a "first world" country is a wild dream—one that often feels out of reach due to family concerns and, of course, the expense. While the cost was a big worry for me as well, Ankita and I decided to dive into the sea of a "European Vacation." However, my friend eventually dropped out when his family wasn’t on board with the idea, leaving Ankita and me to embark on this adventure together.
 
 ## Stuggles of Getting a Schengan Visa
 
- Ankita and I got married in April 2024. We just loves to travel. The she's a hardcore planner and I'm someone who just let things happens. So, We jumped right into planning (haha!! :D). Though we have to plan our trip but we have decided there will be no agents or travel company involved. We're gonna fail or lose but all by ourselves. Because we both thinks that you learn a lot of something when you plan a certain travel destination. Thus, We both started soaking all the information about visa process, itinerary by scrolling through a whole lot of reels, facebook groups, blogs and YouTube videos.
+Ankita and I got married in April 2024, and travel is something we both love. While she's a meticulous planner, I prefer to go with the flow. Despite this difference, we decided to plan the entire trip ourselves—no agents or travel companies involved. Sure, we knew we might face setbacks, but we were determined to learn and do everything on our own.
 
- Schengan visa progress is really confusing, tricky and to put in plain words "difficult". It took a real mental toll on both of us. As an Indian Passport holder, I never expected applying to Schengan Visa in 2024 would be this difficult. The process is too overwhelming and makes no sense at certain times. The first and foremost thing required for this visa was travel itinerary. Ankita and I, dwelled in this for days to figure out routes, tranportation, and which particular places we have to visit. I understood we barely understand Europe in terms of their Cities and transportation. And I'm not gonna lie presenting this with Visa process is a hell of a task because based on your itinerary, embassy gonna decided your visa.
- Visa process is a seperate topic of discussion altogether, which I will cover in a different post. For now, let's focus on the stories ;) 
- 
+The Schengen visa process, though, turned out to be incredibly complicated and, honestly, quite overwhelming. As Indian passport holders, we never anticipated how mentally exhausting it would be to apply for a Schengen visa in 2024. One of the most important requirements for the visa was having a well-thought-out travel itinerary. Ankita and I spent days figuring out the best destinations, scenic routes, and accommodations. We realized quickly that the itinerary is crucial for a successful visa application.
+
+We eventually decided to visit three countries—France, Switzerland, and Italy—based on our vacation time, budget, and travel preferences. The first step after finalizing our itinerary was booking our flights. After much deliberation, we booked flights from New Delhi to Paris (Vistara UK21) and our return flight from Rome to Mumbai (IndiGo Codeshare).
+
+Once we gathered all the required documents (which I’ll cover in detail in another post), we scheduled an appointment at the VFS center to submit everything. Since our first point of entry was Paris, we applied through the French embassy at the Pune VFS center. Despite our careful preparation, our application was rejected for a vague reason: “Intention of Stay and Purpose of Visit is not reliable.” 
+
+
  Eventually!  Got the Schengen Visa from Switzerland within 20 Days of Rejection by France.
